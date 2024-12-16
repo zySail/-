@@ -1,0 +1,1 @@
+https://tenhou.net/4/res/img/_bg1_1024x0768.jpg
